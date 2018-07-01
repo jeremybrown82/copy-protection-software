@@ -1,0 +1,1 @@
+# copy protection software
